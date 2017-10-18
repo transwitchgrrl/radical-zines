@@ -1,2 +1,2 @@
 # anarchist-zines
-A collection of zines zines
+A collection of anarchist zines
