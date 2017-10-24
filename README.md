@@ -1,4 +1,4 @@
-# anarchist-zines
-A collection of anarchist zines
+# radical-zines
+A collection of radical zines
 Please copy and share this as widely as possible!
 Anti-copyright
